@@ -8,10 +8,11 @@
 
 **🔗 Contact Information And Other Links**
 
-1. Contact me on Discord at KingSurge#
+1. Contact me on Discord at KingSurge#9182
 2. Contact me via email at kingsurge001@gmail.com
 3. Visit My youtube channel:
 
 
 
 THIS README.md FILE WILL BE UPDATED SOON
+
