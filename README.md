@@ -7,7 +7,7 @@
 📱 If there is a project you would like me to work on or a project you would like me to help you with or a project you dont understand please contact me (see contact information at the end)
 
 **📚 Courses**
-I am also interested in offering free resources / tutoring for those who would like to learn the languages listed above
+I am also interested in offering free resources / tutoring for those who would like to learn the languages listed above just contact me.
 
 **🔗 Contact Information And Other Links**
 
